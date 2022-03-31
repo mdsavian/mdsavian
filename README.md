@@ -8,4 +8,4 @@ I love working on challenging projects that allow me to learn while seeking new 
 
 ### Contact
 
-You can find me at **[LinkedIn](https://www.linkedin.com/in/marlon-savian/)**.
+You can find me on **[LinkedIn](https://www.linkedin.com/in/marlon-savian/)**.
